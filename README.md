@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **kaustubhwaje@gmail.com**
 
-- ⚡ Fun fact **I am a passionate 6'1 Indian guy**
+- ⚡ Fun fact **I am your friendly 6'1 Indian guy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
